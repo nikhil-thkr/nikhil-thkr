@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **nikhil24383@iiitd.ac.in**
 
-- ⚡ Fun fact **I enjoy cricket, but unfortunately, I’m unable to play it.**
+- ⚡ Fun fact **Cricket lover 🏏 and fitness enthusiast 💪.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
